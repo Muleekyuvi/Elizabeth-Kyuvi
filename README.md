@@ -1,4 +1,4 @@
-# Elizabeth-Kyuvi# Hi, I'm Elizabeth Kyuvi 👋
+# Hi, I'm Elizabeth Kyuvi 👋
 
 **Aspiring Data Analyst | B.Sc. Community Development & Environment | Nairobi, Kenya**
 
